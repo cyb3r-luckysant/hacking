@@ -52,7 +52,7 @@ use online web page
 - protect your safe
 
 ## download application 👩‍💻
-**LABALABI For Instagram**-[opne](https://github.com/cyb3r-luckysant/hacking/blob/main/besic%20hacking/learn%20bombing/apk_/Instagram_1.0.apk)
+-[**LABALABI For Instagram.apk**](https://github.com/cyb3r-luckysant/hacking/blob/main/besic%20hacking/learn%20bombing/apk_/Instagram_1.0.apk)
 
 **soon**- [opne](#)
 
