@@ -101,8 +101,5 @@ Powerful and Fastest SMS bomber app. [Only for India]
 
 <p align="center"><img src="https://hips.hearstapps.com/hmg-prod/images/line-break-1644443423.png" alt="Line Break" width="100%">
 </p>
-## 
-*Subscribe*
-
 [TOUTUBE](https://youtube.com/@mr_lucky_sant)
 
