@@ -94,7 +94,7 @@ Powerful and Fastest SMS bomber app. [Only for India]
 - Fixed Minor Bugs 🐛
 
   <br>
-   <video src="besic hacking/learn bombing/apk_/V$P$T/lv_0_20240220012926.mp4"></video>
+   <video src="besic hacking/learn bombing/apk_/V$P$T/lv_0_20240220012926.mp4">
   
 
 <p align="center"><img src="https://hips.hearstapps.com/hmg-prod/images/line-break-1644443423.png" alt="Line Break" width="100%">
