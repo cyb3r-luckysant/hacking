@@ -2,7 +2,7 @@
 # learn basic hacking! 👋
 
 
-## {2} INSTAGRAM  BOOMBING 
+## {3} INSTAGRAM  BOOMBING 
 👩‍💻 hii i am lucky  
 
 🧠 this project for SMS bombing 
