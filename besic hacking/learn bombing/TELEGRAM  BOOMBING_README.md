@@ -54,19 +54,19 @@ use online web page
 ## download application 👩‍💻
 -[**TELEGRAM BOT BOM...APK**](https://github.com/cyb3r-luckysant/hacking/blob/main/besic%20hacking/learn%20bombing/apk_/RED-X%20BOT%20ATTACK_1.0.apk)
 
-**Sms-bomber**- [opne](#)
+**SOON**- [opne](#)
 
-**smsbomber**- [opne](#) 
+**SOON**- [opne](#) 
 
 ## online sites 👩‍💻
 
-**smsbomber**-[opne](#)
+**SOON**-[opne](#)
 
-**sms-callbomber**-[opne](#)
+**SOON**-[opne](#)
 
-**Sms-bomber**- [opne](#)
+**SOON**- [opne](#)
 
-**smsbomber**- [opne](#) 
+**SOON**- [opne](#) 
 
 
 
