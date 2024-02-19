@@ -52,21 +52,21 @@ use online web page
 - protect your safe
 
 ## download application 👩‍💻
-**sms-callbomber**-[opne](#)
+**LABALABI For Instagram**-[opne](https://github.com/cyb3r-luckysant/hacking/blob/main/besic%20hacking/learn%20bombing/apk_/Instagram_1.0.apk)
 
-**Sms-bomber**- [opne](#)
+**soon**- [opne](#)
 
-**smsbomber**- [opne](#) 
+**soon**- [opne](#) 
 
 ## online sites 👩‍💻
 
-**smsbomber**-[opne](#)
+**soon**-[opne](#)
 
-**sms-callbomber**-[opne](#)
+**soon**-[opne](#)
 
-**Sms-bomber**- [opne](#)
+**soon**- [opne](#)
 
-**smsbomber**- [opne](#) 
+**soon**- [opne](#) 
 
 
 
