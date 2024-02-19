@@ -2,7 +2,7 @@
 # learn basic hacking! 👋
 
 
-## {2} TELEGRAM  BOOMBING 
+## {4} TELEGRAM  BOOMBING 
 👩‍💻 hii i am lucky  
 
 🧠 this project for SMS bombing 
